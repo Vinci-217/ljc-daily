@@ -1,0 +1,13 @@
+# 2024.5.4小记
+
+这个五一假期，直接在床上躺了三天，我的老天爷，每天只走了十几步，麻了。今天也是出去转了转，本意是为了吃个寿喜烧，顺便去天府广场转转。
+
+让我没想到的是，天府广场的天府红商场还挺好的，本来一开始还觉得这个二次元聚集地有个啥好看的，转了转发现，妈呀，coser真香，后面吃饭的时候更是看到了好几个自己喜欢的角色以及好漂酿的小姐姐。
+
+一顿寿喜烧吃了114，嗯，真的贵啊，但是很久时间之内应该只吃这一次。嗯，怎么说的，不是很好吃，就和火锅其实也差不多，但是就当体验生活了吧，希望接下来的日子可以更好的生活，发展更好的自己。
+
+![](https://mvrnvlyefnc.feishu.cn/space/api/box/stream/download/asynccode/?code=MGMwZDZjYWMwYWE1YWQ4YzY4MjEyMWM2NWU3YzRjZWFfZDcwbVVrM1lZYnZYQnBVTGFRekJnWWNsZHBEeU44UVhfVG9rZW46TjdIbWJQa095b3cwTXl4MFZkTWNtb05yblZoXzE3MTQ4OTUyMjg6MTcxNDg5ODgyOF9WNA)![](https://mvrnvlyefnc.feishu.cn/space/api/box/stream/download/asynccode/?code=ZGM2NmVlY2Y3Y2EzMzNhNzg5YTZlOTViMTRjMDMwZWZfOVB3eTZ5RzFKSFlLWklMWmpXeUkyVDRUV1dYdHNzWkhfVG9rZW46S3JhWWJjRjB2b2V3bGt4ZDdsYmNUOUlibnRzXzE3MTQ4OTUyMjg6MTcxNDg5ODgyOF9WNA)
+
+![](https://mvrnvlyefnc.feishu.cn/space/api/box/stream/download/asynccode/?code=NGM4ZGI1NTQwYWY2MDMzYjllMTgzODExYTAzODQyOGRfRUVEVzhIWk5CalNuYnlsd3BvUllMR2VTeTNqTUhDaXFfVG9rZW46VklnSGJQOEVXb1pGWmF4a2JDaWNqYnVnblRnXzE3MTQ4OTUyMjg6MTcxNDg5ODgyOF9WNA)![](https://mvrnvlyefnc.feishu.cn/space/api/box/stream/download/asynccode/?code=OWE4Y2M1OWY3ZGUxYzdmMzQxYjQ3MmQzZThlNGUzNTJfWXY5Wmk1ajJaUFR6WERGZHJyWnpnMEZpOGEzdm5GRWFfVG9rZW46R2lKQmJSNmZvb1B5SnZ4NGxLbGN6UEVwbkNiXzE3MTQ4OTUyMjg6MTcxNDg5ODgyOF9WNA)
+
+![](https://mvrnvlyefnc.feishu.cn/space/api/box/stream/download/asynccode/?code=ZDFkZTZiYjA1NTk0OGZlMDFmNTMyZjBlYjExNGRjYjBfdUM1dXF0aXZVMHNNTDZpUDNzdTh6WnZST01WZEx6ZTFfVG9rZW46TzR5dWIzWk1Pb0ZSaEh4c3BHOGNpV3FjblpjXzE3MTQ4OTUyMjg6MTcxNDg5ODgyOF9WNA)
