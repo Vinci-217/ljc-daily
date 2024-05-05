@@ -8,7 +8,7 @@ bgImageStyle:
   background-attachment: fixed
 actions:
   - text: 开始 | Start
-    link: /随笔/README.html
+    link: /随笔/
     type: primary
 
 
